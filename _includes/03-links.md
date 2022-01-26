@@ -1,1 +1,1 @@
-[GitHub] (https://github.com/Meghajk08)
+[GitHub](https://github.com/Meghajk08)
