@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. wings of fire
+2. atomic habits
+3. the motorcycle diaries
